@@ -1,0 +1,1 @@
+# Olcme-hafta-1
